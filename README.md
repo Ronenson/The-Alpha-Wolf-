@@ -25,26 +25,8 @@ First of all let me give you a quick info about myself;
   Well that’s me.
   
   
-  
-  
-  
-  
-  
-  
-  
-  
-  
-   
-   
-   
-   ![alt text](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image5.png)
-  
-  
-
-
-     
-
-*Well the main reason towards the creation of this website is that
+ 
+   *Well the main reason towards the creation of this website is that
  I want you guys to know something important. Well it’s about Nature. 
  I love and care for my mother nature.*
  
@@ -56,7 +38,7 @@ First of all let me give you a quick info about myself;
  
  
  
- ![Nature](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image4.png)
+ ![Nature](https://cdn.guidingtech.com/media/assets/WordPress-Import/2017/03/background-nature-21-1024x576.jpg)
       
      
 
@@ -94,7 +76,7 @@ First of all let me give you a quick info about myself;
  
  
  
- ![alt text](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image2.png)
+ ![alt text](https://render.fineartamerica.com/images/rendered/default/poster/8/10/break/images/artworkimages/medium/1/wolf-moon-jerry-lofaro.jpg)
  
  
  
@@ -134,7 +116,7 @@ First of all let me give you a quick info about myself;
  
  
  
- ![Mother nature suffering](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image1.png)
+ ![Mother nature suffering](https://matildarose2016.files.wordpress.com/2016/04/q.jpg?w=663)
       
      
        
@@ -169,7 +151,7 @@ First of all let me give you a quick info about myself;
 
 
 
-![The facinating Nature](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image3.png)
+![The facinating Nature](https://c4.wallpaperflare.com/wallpaper/284/701/236/animals-artistic-bambie-cartoons-wallpaper-preview.jpg)
 
  
 
