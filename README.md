@@ -3,7 +3,7 @@ My first very own website
 
            
 
-                       Hi everyone, welcome to my page.
+Hi everyone, welcome to my page.
 
 First of all let me give you a quick info about myself;
 
@@ -22,9 +22,7 @@ First of all let me give you a quick info about myself;
   State: Manipur.
 
   Email: ronensonoinam@gmail.com.
-
-
-                                    Well that’s me.
+  Well that’s me.
 
 
      
