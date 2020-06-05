@@ -55,7 +55,9 @@ First of all let me give you a quick info about myself;
 
           However, the world is at stake now. We have hurt our mother nature in
        a way out of control. The image shows a truly deep meaning. We are just
-       endangering ourselves.Untitled document/images/image1.png
+       endangering ourselves.
+     
+       
 
                Now mother nature wants to heal herself from the destruction caused to her
        . Whether it’s true or not mother nature is healing herself through coronavirus.
