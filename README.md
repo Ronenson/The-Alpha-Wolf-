@@ -23,6 +23,23 @@ First of all let me give you a quick info about myself;
 
   Email: ronensonoinam@gmail.com.
   Well that’s me.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+   
+   
+   
+   ![alt text](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image5.png)
+  
+  
 
 
      
@@ -30,6 +47,18 @@ First of all let me give you a quick info about myself;
 *Well the main reason towards the creation of this website is that
  I want you guys to know something important. Well it’s about Nature. 
  I love and care for my mother nature.*
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ ![Nature](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image4.png)
+      
+     
 
        
 
@@ -38,10 +67,37 @@ First of all let me give you a quick info about myself;
  charming sceneries, the flowers that appeal us by their charm and
  the animals that make us thrilled and fascinated. What will be 
  without them? Imagine it.***
+ 
 
 ***As for the animals, they are one of the children playing on the lap
  of mother nature. Every one of us has a favorite animal, don’t we? 
  As for me, it’s wolf.***
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ ![alt text](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image2.png)
+ 
+ 
+ 
 
 ***Wolves are intensely ambitious and never shy from hard work. Socially
  adept, they function well in leadership and management roles as well
@@ -54,7 +110,31 @@ First of all let me give you a quick info about myself;
 ***However, the world is at stake now. We have hurt our mother nature in
  a way out of control. The image shows a truly deep meaning. We are just
  endangering ourselves.***
- ![Mother Nature](Untitled20cument/images/image1.png)
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ ![Mother nature suffering](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image1.png)
       
      
        
@@ -67,6 +147,29 @@ First of all let me give you a quick info about myself;
 ***So what I want to convey is that while mother nature is healing herself, let’s 
  all try to be safe and to survive this wave. Once this is done, let’s not try
  to hurt mother nature in the best way we can for we don't know what she is capable of.***
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![The facinating Nature](https://github.com/Ronenson/The-Alpha-Wolf-/blob/master/Untitled%20document/images/image3.png)
 
  
 
